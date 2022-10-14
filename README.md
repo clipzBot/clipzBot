@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @clipzBot
+- 👀 I’m interested in Making Games
+- 🌱 I’m currently learning How to Make Games On Game Engines
+- 💞️ I’m looking to collaborate on stuff
+- 📫 How to reach me dont reach me
